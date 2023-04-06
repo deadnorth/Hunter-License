@@ -11,10 +11,15 @@
 
 
 🌐Here some links about me: 
+
 https://linktr.ee/sercee
+
 https://ppf.one
 
 
+
 📧You can contact me from:
+
 E-mail: mali.20072009@outlook.com
+
 Discord: serçe#1234
